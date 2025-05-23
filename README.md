@@ -53,7 +53,7 @@
 ## 📫 Contact Me
 
 - 📧 Email: [mazennayef2002@gmail.com](mailto:mazennayef2002@gmail.com)
-- 💼 LinkedIn: [linkedin.com/in/mazen-nayef](https://www.linkedin.com/in/mazen-mohamed-nayef/) 
+- 💼 LinkedIn: [/in/mazen-mohamed-nayef](https://www.linkedin.com/in/mazen-mohamed-nayef/) 
 
 ---
 
